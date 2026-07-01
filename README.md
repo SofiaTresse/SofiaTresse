@@ -1,8 +1,7 @@
 # 💫 About Me:
-🌞Estudante de Engenharia da Computação;<br><br>🛜Curso técnico em Informática para a Internet(Desenvolvimento de Sistemas);<br>📖Inglês intermediário;<br>💡Espanhol básico;<br>📚Francês básico<br>💻Interessada em aprofundar os meus conhecimentos nas diversas áreas de T.I. ⸜( ˶>ᴗ<˶)⸝♡
+🌞Estudante de Engenharia da Computação;<br>🛜Curso técnico em Informática para a Internet(Desenvolvimento de Sistemas);<br>📖Inglês básico/intermediário;<br>💡Espanhol básico;<br>📚Francês básico<br>💻Interessada em aprofundar os meus conhecimentos nas diversas áreas de T.I. ⸜( ˶>ᴗ<˶)⸝♡
 
-°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
-
+°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sofiatresse) 
