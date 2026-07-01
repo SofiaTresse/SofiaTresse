@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 𑣲𝑺💫 Sobre mim ⋆˙⟡
 🌞Estudante de Engenharia da Computação;<br>🛜Curso técnico em Informática para a Internet(Desenvolvimento de Sistemas);<br>📖Inglês básico/intermediário;<br>💡Espanhol básico;<br>📚Francês básico<br>💻Interessada em aprofundar os meus conhecimentos nas diversas áreas de T.I. ⸜( ˶>ᴗ<˶)⸝♡
 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
